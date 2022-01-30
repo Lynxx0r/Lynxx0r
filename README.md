@@ -1,0 +1,2 @@
+- Hey, Mason Gaugler here. Currently in CSE 220. - 
+- @ me at Lynxx0r - 
